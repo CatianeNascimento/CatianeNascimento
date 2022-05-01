@@ -2,7 +2,7 @@
  
 
 
-##### Sou estudante de Análise e Desenvolvimento de Sistemas, atualmente estou focada em me desenvolver programadora ! 😊
+##### Sou estudante de Análise e Desenvolvimento de Sistemas, atualmente estou focada em me desenvolver como programadora ! 😊
 
 <br> <br>
 

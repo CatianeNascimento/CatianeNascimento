@@ -1,9 +1,4 @@
 # Olá, eu sou Catiane!🧍🏽‍♀
- 
-
-
-##### 🎓 Estudante de Análise e Desenvolvimento de Sistemas
-##### 🎓 Desenvolvedora Full Stack Java em formação
 
 <br>
 <div align="center">
